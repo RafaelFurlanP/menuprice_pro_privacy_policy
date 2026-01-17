@@ -1,6 +1,6 @@
 # Política de Privacidade - MenuPrice Pro
 
-**Última atualização: Janeiro de 2025**
+**Última atualização: Janeiro de 2026**
 
 ---
 
